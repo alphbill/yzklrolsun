@@ -1,0 +1,2 @@
+# yzklrolsun
+Yazıklar Olsun
